@@ -4,3 +4,5 @@
 ![342945372_599534218801981_7507700119415196180_n](https://github.com/Toumi-Nadhir/Central-Achat-Front/assets/145234475/687416ee-cf31-49e1-8a69-216ba5183b5c)
 ![342929186_990540395651623_612843006507328418_n](https://github.com/Toumi-Nadhir/Central-Achat-Front/assets/145234475/c7b1ee20-ff1d-45f1-9a69-d30170d03243)
 ![image](https://github.com/Toumi-Nadhir/Central-Achat-Front/assets/145234475/60181c69-78c7-4640-ba32-1f7d56265458)
+![image](https://github.com/Toumi-Nadhir/Central-Achat-Front/assets/145234475/2939df8c-fbef-40f5-8f1c-a6d5f5224287)
+![image](https://github.com/Toumi-Nadhir/Central-Achat-Front/assets/145234475/68d61f00-0834-4168-974f-cb77f7febe06)
